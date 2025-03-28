@@ -1,1 +1,1 @@
-Used to host http://gotpvpdiscord.site
+Used to host http://TRHOSTING.site
